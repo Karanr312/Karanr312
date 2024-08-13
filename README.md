@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any project
 - 📫 How to reach me : karannirvikar@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: 1650 chess rated
+- ⚡ Fun fact: 1700 chess rated
 
 <!---
 Karanr312/Karanr312 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
